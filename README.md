@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Nn3k0
+- 👀 I’m interested in hacking
+- 🌱 I’m currently learning coding & hacking
+- i am noob lol
